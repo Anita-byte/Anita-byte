@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anita-Munoli
-- 👀 I’m interested in DataScience Projects
+- 👀 I’m interested in DataScience and AI Projects
 - 🌱 I’m currently learning DataScience and AI related Skills
 - 💞️ I’m looking to collaborate on DataScience and AI projects
 - 📫 reach me out here: +91 9686600900, ashwinimunoli@gmail.com
